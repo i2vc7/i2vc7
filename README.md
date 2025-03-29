@@ -46,7 +46,7 @@
 
 ## 📫 Connect With Me
 
-- [LinkedIn](https://www.linkedin.com/in/ibrahim-mohammd-18b139215/) | [Twitter/X](https://x.com/so2ja1l)
+- [LinkedIn](https://www.linkedin.com/in/ibrahim-mohammd-18b139215/) | [Twitter/X](https://x.com/so2ja1)
 
 ---
 
